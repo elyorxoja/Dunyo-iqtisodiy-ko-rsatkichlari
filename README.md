@@ -1,0 +1,1 @@
+# Dunyo-iqtisodiy-ko-rsatkichlari
